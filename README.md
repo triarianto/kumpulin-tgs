@@ -1,0 +1,2 @@
+# kumpulin-tgs
+masih pemula
